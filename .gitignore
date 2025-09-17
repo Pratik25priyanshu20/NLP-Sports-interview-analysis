@@ -1,0 +1,13 @@
+# Ignore virtual environment
+venv/
+
+# Ignore model checkpoints and weights
+*.bin
+*.pt
+*.dylib
+models/
+dev/
+
+# Ignore other large cache/log dirs
+__pycache__/
+*.log

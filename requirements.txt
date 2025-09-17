@@ -1,0 +1,15 @@
+pandas==2.0.0
+numpy==1.23.5
+scikit-learn==1.2.2
+matplotlib==3.7.1
+seaborn==0.12.2
+nltk==3.8.1
+wordcloud==1.9.3
+transformers==4.30.0
+torch==2.0.1
+datasets==2.12.0
+streamlit==1.22.0
+umap-learn==0.5.3
+plotly==5.14.1
+transformers>=4.30.0
+sentencepiece>=0.1.95  # needed for DeBERTa tokenizer

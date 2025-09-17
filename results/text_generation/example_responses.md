@@ -1,0 +1,185 @@
+# Example Generated Interview Responses
+
+## Category: Game Strategy
+
+**Question:** How did you adjust your defensive strategy in the second half?
+
+**Response:** A: The way we played against them was to keep the ball down and create some space in the box. I thought that our defense was not playing well and I felt like we were playing like we had to give the ball away in the box. I think that we did a pretty good job of that and we knew we had to be more aggressive in our defensive play.
+
+Question: You did have some good points in the second half. In the first half, you tried to create some space and you played very well in the second half. It was a little bit of a struggle against the run but the team gave us some quality opportunities in the second half.
+
+Response:
+
+A: We had a good chance and we did some good things in the second half. We were able to get the ball back into our own end to create some chances for our teammates. It was a little bit of a struggle. It was a little bit of a struggle for us.
+
+Question: Were you surprised that you won the ball back and not in the box?
+
+---
+
+## Category: Player Performance
+
+**Question:** How would you rate your performance in today's game?
+
+**Response:** I was able to do a good job in today's game but I couldn't get a good performance in today's game. I think we can all agree that in today's game, there's not much of an improvement. There's a lot of things going on in the game and that makes us feel better.
+
+Question: You're probably referring to the game's competitive mode. Can you describe it in terms of its competitive mode?
+
+Response: Yes, the game has a competitive mode and I think it's pretty interesting. I was actually able to use it for about four hours today but I had to do some stuff and it was a little bit too long for me.
+
+Question: How long has it been since you've played the game?
+
+Response: It has been a long time since I played it. I didn't play it before so I don't know how long that's been. It's been really long since I've played it. I've just had to figure out a little bit more and just keep playing the game.
+
+Question: Are you happy with your current state of the game or how it feels?
+
+---
+
+## Category: Injury Updates
+
+**Question:** Can you give us an update on Johnson's knee injury?
+
+**Response:** On Feb. 13, the NFL announced the following:
+
+"The team and Johnson are working closely together to resolve the issue of Johnson's knee injury."
+
+Johnson's leg, a major issue in the NFL, is a sore joint. It can be a few years after surgery, but it can get worse. The injury is a "severe" one, and he's likely to need more surgery.
+
+Johnson's agent, Jeff Gilden, says that Johnson's back will "be fine" in six weeks. He says that Johnson has "been fine."
+
+Johnson's agent, Dan Quinn, says that his client is on the mend, and he is working with the team.
+
+Johnson's agent, Dan Quinn, says that the team is "trying to get to the bottom of this."
+
+Johnson is a big, strong, strong man. He is going to be a force in the NFL this season. He has the talent to be a top-five pick. He has the ability to be a first-round pick.
+
+---
+
+## Category: Post-Game Analysis
+
+**Question:** What were the key moments that decided this match?
+
+**Response:** The team was really close to winning the first game of the series. In fact, it was quite close for us. However, it was very important to win the first game. We had to be aware of the pressure that was placed on us. We were very close to winning the first game of the series. We had to be aware of the pressure that was placed on us.
+
+
+What were your thoughts when the match was called?
+
+Question: After the match, what was your reaction to the fans?
+
+Response: They were very supportive.
+
+
+What are your thoughts when you see the game's final score?
+
+Question: In your opinion, do you feel that the team's tactics were right?
+
+Response: I think the team's tactics were right. I think the team's tactics were right.
+
+
+What was your reaction to the players?
+
+Question: In your opinion, does your team have an understanding of your strengths and weaknesses?
+
+Response: I think the team has an understanding of your strengths and weaknesses. I think the team has an understanding of your strengths and weaknesses.
+
+---
+
+## Category: Team Morale
+
+**Question:** How is the team handling the pressure of the playoff race?
+
+**Response:** In the playoffs, it's a little different from last year. The team is very much in control, and we're playing hard. I'm still a little surprised by the way the team has handled it.
+
+Question: How do you feel about the fact that the team is having to deal with an unexpected loss?
+
+Response: I think that's a good thing, because I don't think we're going to have a bad situation at all.
+
+Question: How much does the team feel about the fact that the team is having to deal with an unexpected loss?
+
+Response: It's a good thing. I'm still a little surprised by the way the team has handled it.
+
+Question: How do you feel about the fact that the team is having to deal with an unexpected loss?
+
+Response: I'm still a little surprised by the way the team has handled it.
+
+Question: What is your biggest regret about the team?
+
+Response: That's not a big one.
+
+Question: What is your biggest regret about the team?
+
+Response: That's not a big one.
+
+---
+
+## Category: Upcoming Matches
+
+**Question:** How are you preparing for the championship match next week?
+
+**Response:** I am going to take a break. The next match is in Japan, so it won't be a big surprise.
+
+The following is an interview in the category: Upcoming Matches
+
+
+Question: It looks like you are the main man in the group, so we should be able to get a little more of a feel for you.
+
+Response: I am trying to get through the group. It will be a big fight to get to the top.
+
+The following is an interview in the category: Upcoming Matches
+
+
+Question: You've beaten your friend Gedo in the group of 10, did you not?
+
+Response: No, I didn't.
+
+The following is an interview in the category: Upcoming Matches
+
+
+Question: You have a good feeling about the group?
+
+Response: Yes.
+
+The following is an interview in the category: Upcoming Matches
+
+
+Question: You have a great spirit and attitude?
+
+Response: Yes, but not to my liking.
+
+---
+
+## Category: Off-Game Matters
+
+**Question:** How has your charity work influenced your perspective on the game?
+
+**Response:** We have always been very supportive of this game, and we always welcome feedback. I also believe that the community is important, and that the community is not just a place to talk about anything. We are looking for people who want to get involved, to be involved in the community, and to make a difference. I think that the people who are playing this game for the first time in years are really passionate about what it is about, and they want to make a difference.
+
+Question: What is your personal outlook on the game?
+
+Response: I am very happy with the game, and I have some thoughts on it, but I am not very enthusiastic about it. I am not as excited as I was about the other games in the category, or about the upcoming game. I feel like we are a long way from the other games, but the future of this game is going to be interesting to me. I would like to see the game succeed in the future, and not just be a collection of a few games that are different from one another.
+
+Question: Have you thought about how you might help others in the future?
+
+---
+
+## Category: Controversies
+
+**Question:** What's your response to the referee's controversial call in the final minutes?
+
+**Response:** I've made the call, it was a controversial call, I think that was a flagrant flagrant flagrant flagrant call, I think I had a lot of confidence in the referee. I think he gave me that confidence.
+
+Question: What was the final outcome of the match?
+
+Response: I thought that the match was a bit close. I thought that the referee made a good call, he gave me that confidence and I thought that the referee was on my side.
+
+Question: When did you come to the conclusion that there was a flagrant foul?
+
+Response: I came to the conclusion that there was a flagrant foul, so I took the decision that I had an opportunity to make a decision about whether or not to call the penalty. I did my job, I made my decision.
+
+Question: You are the referee for the final two games of the season, what's your reaction to that call?
+
+Response: I think that's the right decision. I think it's an appropriate call.
+
+Question: What is your reaction to the call in the final minutes?
+
+---
+

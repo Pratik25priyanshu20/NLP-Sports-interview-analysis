@@ -1,0 +1,13 @@
+---
+
+# AI Tool Declaration
+
+I used the following AI tools during the development of this project:
+
+- **ChatGPT (OpenAI)**: To review code, generate scaffolding for modules like visualization and Streamlit integration, and to brainstorm the project structure and deliverables.
+- **Hugging Face Transformers**: Pre-trained models like `bert-base-uncased` and `gpt2` were used for classification and text generation tasks.
+- **GitHub Copilot**: Occasionally suggested completions during repetitive function writing.
+
+All AI-generated content was carefully reviewed, edited, and verified for correctness, performance, and ethical compliance. Final decisions on code structure, design, and commentary were made by me.
+
+This declaration is submitted in compliance with the exam's rules regarding AI tool usage.
